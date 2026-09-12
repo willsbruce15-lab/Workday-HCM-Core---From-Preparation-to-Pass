@@ -1,4 +1,4 @@
-# Workday-HCM-Core---From-Preparation-to-Pass
+# Workday-HCM-Core-From-Preparation-to-Pass
 
 # Workday HCM Core Passed,
 
